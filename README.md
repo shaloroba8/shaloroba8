@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...gse
-- 📫 How to reach me ...67832632mlyiu53
+- 📫 How to reach me ...67832632mlyiu53uyk tyu
 i67rteyutyue wefwefkfcngxпваыdfgz
 <!---
 shaloroba8/shaloroba8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
