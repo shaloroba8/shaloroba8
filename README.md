@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @shaloroba8 j5
+s j s- 👋 Hi, I’m @shaloroba8 j5
 - 👀 I’m interested in ...rthrth
 - 🌱 I’m currently learning ...k yu
-- 💞️ I’m looking to collaborate on ...gseh25 25 ltuiluil
+- 💞️ I’m looking to collaborate on ...gseh25 25 ltuiluilj6jyt
 - 📫 How to reach me ...67832632mlyiu53uyk tyuej 56hrt rt eg erg 6456tryrtu fytufytu6765
 i67rteyutyue wefwefkfcngxпваыdfgze rtueyt  ky erye
 <!---
